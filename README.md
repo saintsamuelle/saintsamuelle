@@ -4,7 +4,7 @@
 - 🌺 Studied coputer science<br/>
 - 🌱 I’m currently learning java programming <br/>
 - 💞️ I’m looking to collaborate on developing a mobile app and creating a community garden<br/>
-- 📫 How to reach me <br/>
+- 📫 How to reach me [Samuel](hhhhhhhhh)<br/>
 >
 
 <!---
